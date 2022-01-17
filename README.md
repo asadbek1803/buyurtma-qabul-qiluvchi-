@@ -1,0 +1,1 @@
+# buyurtma-qabul-qiluvchi-
